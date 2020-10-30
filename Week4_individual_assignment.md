@@ -6,7 +6,8 @@ on unhoused people in LA through visual stories.
 
 **A couple random thoughts**
 
-I am looking forward to the LA Times year in review that he gave us a small glimpse of. I also thought it was fascinating that the corona virus tracker is the most visited page of LA Times ever. Makes sense because we are all at home with nothing else to do.
+- I am looking forward to the LA Times year in review that he gave us a small glimpse of.
+- It is fascinating that the corona virus tracker is the most visited page of LA Times ever. (Makes sense because we are all at home with nothing else to do.)
 
 My main take away was that you need a main takeaway. I think this will be relevant for our midterm and our final project.
 Ben was talking about what he looks for in an applicant and it was someone who’s work has a headline, a point, tells a story.
